@@ -1,1 +1,0 @@
-Mavi tik script
